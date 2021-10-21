@@ -15,3 +15,4 @@ Don't forget to put your name.
 - Zuxxop
 - Muryaaadi
 - Antareza
+- Adeputra Armadani
